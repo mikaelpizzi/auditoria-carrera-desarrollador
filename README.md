@@ -52,10 +52,21 @@ Esto es lo que obtienes:
 
 El mercado no va a esperar.
 
-### ¿Listo para la verdad técnica?
+## Cómo Reservar tu Cupo "Beta" ($49)
 
-**(Próximamente) Enlace para reservar tu "Sprint de Auditoría".**
+Estoy lanzando esto como un "Programa Beta" de acceso limitado para **solo 5 desarrolladores serios.**
 
-*Si tienes prisa (y agallas), puedes contactarme directamente:*
+El precio final de esta auditoría será de $499. El precio beta es de $49 USD.
 
-### **[Mi Perfil de LinkedIn](https://www.linkedin.com/in/mikaelpizzi)**
+El proceso es 100% directo, pero no es automático. **Hablo personalmente con cada candidato beta.**
+
+**PARA RESERVAR TU CUPO:**
+
+Envíame un mensaje directo aquí en **[LinkedIn](https://www.linkedin.com/in/mikaelpizzi)** (o un correo a **mikaelangelopizzi@gmail.com**) con una sola palabra:
+
+**"BETA"**
+
+Te responderé personalmente con los siguientes pasos para confirmar tu cupo y enviarte la factura formal de pago.
+
+¿Vas a olvidarte para siempre de esas posibles 5 o 6 cifras anuales de salario?
+
