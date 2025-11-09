@@ -1,5 +1,7 @@
 # Tu Bootcamp Te Mintió.
 
+### Así que ya sabes la verdad: Leíste la Hoja de Ruta. Leíste el Manifiesto.
+
 Has enviado 100, 200 CVs. Cero entrevistas.
 
 Estás fracasando y crees que es tu culpa.
